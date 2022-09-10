@@ -1,1 +1,1 @@
-This is everything to me now. Literally.
+"Don’t count the days; make the days count." 
